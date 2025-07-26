@@ -1,4 +1,3 @@
-# go-go
-be be be
-evety iiin/
-/all you want is 
+men will be men 
+ all one is so cold
+ 
